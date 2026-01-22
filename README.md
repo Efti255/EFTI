@@ -1,2 +1,2 @@
-# EFTI
-lol i made it 
+# e6fti
+eftis web card
